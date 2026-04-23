@@ -1,4 +1,4 @@
-# Your Name  
+# Chiranjivi Bhattarai
 ### Professional Title • Technologist • Problem Solver  
 
 > Elegant tagline that captures your professional identity.
